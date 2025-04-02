@@ -1,0 +1,1 @@
+![[Raspberry-Pi-5-Pinout--1210x642.jpg]]
